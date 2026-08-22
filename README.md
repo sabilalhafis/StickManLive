@@ -1,2 +1,0 @@
-# StickManLive
-bayar xuy
